@@ -1,11 +1,11 @@
 ---
 layout: post
-title: "4 Simple Rules and Declarative Builders"
-date: 2014-04-13 08:16:10 -0500
-comments: true
+title: 4 Simple Rules and Declarative Builders
+date: 2014-04-13 13:16:10 +0000
+comments: false
 categories: 
----
 
+---
 Earlier this week I bought [4 Rules of Simple Design](http://articles.coreyhaines.com/posts/i-wrote-a-book/) by Corey Haines, a short but interesting discussion of the [Four Rules](http://c2.com/cgi/wiki?XpSimplicityRules) that came out of Extreme Programming. The book is grounded in Corey's vast experience and in the code he's seen people write at [Coderetreat](http://coderetreat.org/). It's a quick but meaty read. There's a lot of knowledge in the ~65 pages of content.
 
 <!-- more -->
