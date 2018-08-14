@@ -19,5 +19,6 @@ fields:
   hidden: false
   default: ''
 pages:
+- _posts/funky-grits.md
 - _posts/2018-08-14-add-twitter-to-the-pile.md
 - _posts/2018-08-13-forestry-io.md
