@@ -24,4 +24,8 @@ This change between the city I remembered and the city I found became the main t
 
 With a sample size of two (2!) actual Icelandic people that I managed to have long conversations with, I would say that their opinion of tourism is _mixed_. The life-long Reykjavik resident recognized all of the money and opportunity that the tourists brought, but also saw the destruction that came with it. Her friends could no longer afford to live in the city where they worked. Home ownership has become a fantasy as homes are split in to profitable airbnb apartments (we, ourselves, were staying at such an apartment). She was angry and sad that the visitors seemed to have so little interest in learning about our preserving the place that they visited.
 
-Much of this was echoed by our other guide, who moved to Reykjavik from a small town on the north cost. But he also saw that tourism meant that people his age could afford to stay in their small towns, towns that were now seeing a steady stream of tourists fleeing the crush of Reykjavik. Previously most of these folks would have moved to capital, or to a different country. 
+Much of this was echoed by our other guide, who moved to Reykjavik from a small town on the north cost. Tourism gave him a job that he loved (he spent most of his time doing multi-day glacier tours), but he was tired of tourists that never looked up from their phones or who came to Iceland pursuing weird romantic ideals of Adventure or Purity.
+
+However, he also saw that tourism meant that people his age could afford to stay in their small towns, thanks to the steady stream of tourists fleeing the crush of Reykjavik. Previously most of these folks would have moved to capital, or to a different country.
+
+So, _mixed_.
