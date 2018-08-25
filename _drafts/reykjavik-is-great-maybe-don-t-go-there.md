@@ -16,4 +16,8 @@ This is not to say that tourists were uncommon. Iceland Air offered the "Free St
 
 To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) the single store has been replaced by a mid-sized mall. Tour busses run non-stop, ferrying bleary passengers 50km to Reykjavik (or elsewhere, as many other Icelandic towns have started to house Reykjavik's overflow).
 
-Once the busses arrive the passengers join all of yesterday's (and the day before's, etc.) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign up for one of the dozens of tours, each customizable to your level of luxury. Wherever they end up they're most likely with other visitors. Reykjavik's population is around 200,000. Roughly 2,000,000 tourists visited it last year. Some 
+Once the busses arrive the passengers join all of yesterday's (and the day before's, etc.) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign up for one of the dozens of tours, each customizable to your level of luxury. Wherever they end up they're most likely with other visitors. Reykjavik's population is around 200,000. Roughly 2,000,000 tourists visited it last year. Anywhere you go you're more likely to end up with tourists than with locals.
+
+Somewhere, underneath all these people, is the actual city of Reykjavik and the actual people that live there. But the tourists, by sheer number alone, make these them hard to find.
+
+When our 
