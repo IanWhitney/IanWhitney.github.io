@@ -20,4 +20,4 @@ Once the busses arrive the passengers join all of yesterday's (and the day befor
 
 Somewhere, underneath all these people, is the actual city of Reykjavik and the actual people that live there. But the tourists, by sheer number alone, make these them hard to find.
 
-When our 
+When our tourist 
