@@ -10,9 +10,9 @@ My recollection is that at this time Iceland was largely thought of a party dest
 
 This is not to say that tourists were uncommon. Iceland Air offered the "Free Stopover in Iceland" deal that has become their mainstay (and was the reason I was visiting Reykjavik at all). Tours to visit glaciers or horses were available, though maybe not in March. The Blue Lagoon already charged steep prices for their Instagram-ready pools (though Instagram itself did not exist). There was definitely a tourist industry but not an especially intrusive one. There were signs that this was changing. The airport was expanding, fancier shops were appearing in downtown, etc.
 
-(note: all of these memories are hazy and may be inaccurate)
+All of these memories are hazy and may be inaccurate. But they definitely informed my desire to return to Reykjavik this year with my wife and daughter.
 
-15 years later and the tourism industry has not just grown, it has metastasized. We left the airport on one of two Iceland Air planes bound for Reykjavik that day. The second sold-out plane left just 10 minutes later. Judging by number of planes and people at Keflavik that scene had been repeated at each of Iceland Air's many US and European destinations.
+16 years since my last visit the tourism industry has not just grown, it has metastasized. We left the airport on one of two Iceland Air planes bound for Reykjavik that day. The second sold-out plane left just 10 minutes later. Judging by number of planes and people at Keflavik that scene had been repeated at each of Iceland Air's many US and European destinations.
 
 To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) the single store has been replaced by a mid-sized mall. Tour busses run non-stop, ferrying bleary passengers 50km to Reykjavik (or elsewhere, as many other Icelandic towns have started to house Reykjavik's overflow).
 
