@@ -4,11 +4,11 @@ layout: post
 date: 2018-08-25 00:00:00 +0000
 
 ---
-I've visited Reykjavik twice before, both in the early 2000s. Those visits were in March, which is not prime tourist season, and the Reykjavik I visited was mostly quiet. The air cold, the sun below the horizon most of the time, the streets and businesses populated mostly by residents. I liked it a lot.
+I've visited Reykjavik twice before, both in the early 2000s. Those visits were in March, which is not prime tourist season, and the Reykjavik I visited was mostly quiet. The air cold, the sun below the horizon most of the time, the streets and businesses populated mostly by residents. I ate a lot of skyr, hung out in tiny coffee shops and took it easy. I liked it a lot.
 
-My recollection is that in 2002 Iceland was largely thought of a party destination; college kids would come for spring break or summer vacation and dance the night away.
+My recollection is that at this time Iceland was largely thought of a party destination; college kids would come for spring break or summer vacation and dance the night away. But those crowds came in the summer, not during the late winters when I visited.
 
-This is not to say that tourists were uncommon. Iceland Air offered the "Free Stopover in Iceland" deal that has become their mainstay (and was the reason I was visiting Reykjavik at all). Tours to visit glaciers or horses were available, though maybe not in March. The Blue Lagoon already charged steep prices for their Instagram-ready pools (though Instagram itself did not exist). There was definitely a tourist industry, but not an especially intrusive one, though there were signs that this was changing. The airport was expanding, fancier shops were appearing in downtown, etc.
+This is not to say that tourists were uncommon. Iceland Air offered the "Free Stopover in Iceland" deal that has become their mainstay (and was the reason I was visiting Reykjavik at all). Tours to visit glaciers or horses were available, though maybe not in March. The Blue Lagoon already charged steep prices for their Instagram-ready pools (though Instagram itself did not exist). There was definitely a tourist industry but not an especially intrusive one. There were signs that this was changing. The airport was expanding, fancier shops were appearing in downtown, etc.
 
 (note: all of these memories are hazy and may be inaccurate)
 
@@ -22,7 +22,7 @@ Somewhere, underneath all these people, was the city of Reykjavik and its reside
 
 This change between the city I remembered and the city I found became the main topic of conversation during the tours we took during our stay. Yes, we took tours. We were tourists, after all.
 
-With a sample size of two (2!) actual Icelandic people that I managed to have long conversations with, I would say that their opinion of tourism is _mixed_. The life-long Reykjavik resident recognized all of the money and opportunity that the tourists brought, but also saw the destruction that came with it. Her friends could no longer afford to live in the city where they worked. Home ownership has become a fantasy as homes are split in to profitable airbnb apartments (we, ourselves, were staying at such an apartment). She was angry and sad that the visitors seemed to have so little interest in learning about our preserving the place that they visited.
+With a sample size of two (2!) actual Icelandic people that I managed to have long conversations with, I would say that their opinion of tourism is _mixed_. The life-long Reykjavik resident recognized all of the money and opportunity that the tourists brought, but also saw the destruction that came with it. Her friends could no longer afford to live in the city where they worked. Home ownership has become a fantasy as homes are divided into profitable airbnb apartments (we, ourselves, were staying at such an apartment). She was angry and sad that the visitors seemed to have so little interest in learning about our preserving the place that they visited.
 
 Much of this was echoed by our other guide, who moved to Reykjavik from a small town on the north cost. Tourism gave him a job that he loved (he spent most of his time doing multi-day glacier tours), but he was tired of tourists that never looked up from their phones or who came to Iceland pursuing weird romantic ideals of Adventure or Purity.
 
