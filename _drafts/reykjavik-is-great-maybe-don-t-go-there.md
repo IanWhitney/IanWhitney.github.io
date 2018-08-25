@@ -12,4 +12,8 @@ This is not to say that tourists were uncommon. Iceland Air offered the "Free St
 
 (note: all of these memories are hazy and may be inaccurate)
 
-15 years later and the tourism industry has not just grown, it has metastasized. Reykjavik 
+15 years later and the tourism industry has not just grown, it has metastasized. We left the airport on one of two Iceland Air planes bound for Reykjavik that day (the other plane departing just 10 minutes later). And, judging by the scene at the Keflavik, many planes had departed from Iceland Air's many US destinations, each of them full-to-the-brim with travelers.
+
+To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) 
+
+ that quickly swamped the airport that had tripled in size since my last visit. 
