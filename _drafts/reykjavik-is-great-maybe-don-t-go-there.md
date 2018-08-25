@@ -29,3 +29,7 @@ Much of this was echoed by our other guide, who moved to Reykjavik from a small 
 However, he also saw that tourism meant that people his age could afford to stay in their small towns, thanks to the steady stream of tourists fleeing the crush of Reykjavik. Previously most of these folks would have moved to capital, or to a different country.
 
 So, _mixed_.
+
+Should you go to Iceland? I'm not sure. My advice to tourists is much like advice given to gentrifiers. Learn about where you're staying, support the things that make the place special, be humble, act like a guest, stay out of the way and be quiet.
+
+But, much like gentrification, be aware that your visit comes with repercussions.
