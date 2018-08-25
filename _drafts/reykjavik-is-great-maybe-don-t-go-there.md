@@ -20,6 +20,8 @@ Once the busses arrive the passengers join all of yesterday's (and the day befor
 
 Somewhere, underneath all these people, was the city of Reykjavik and its residents, the reason I wanted to come back. But the tourists, by sheer number alone, push the city and its residents out of view.
 
-This change between the city I remembered and the city I found became the man topic of conversation during the tours we took during our stay. Yes, we took tours. We were tourists, after all.
+This change between the city I remembered and the city I found became the main topic of conversation during the tours we took during our stay. Yes, we took tours. We were tourists, after all.
 
-With a sample size of two 
+With a sample size of two (2!) actual Icelandic people that I managed to have long conversations with, I would say that their opinion of tourism is _mixed_. The life-long Reykjavik resident recognized all of the money and opportunity that the tourists brought, but also saw the destruction that came with it. Her friends could no longer afford to live in the city where they worked. Home ownership has become a fantasy as homes are split in to profitable airbnb apartments (we, ourselves, were staying at such an apartment). She was angry and sad that the visitors seemed to have so little interest in learning about our preserving the place that they visited.
+
+Much of this was echoed by our other guide, who moved to Reykjavik from a small town on the north cost. But he also saw that tourism meant that people his age could afford to stay in their small towns, towns that were now seeing a steady stream of tourists fleeing the crush of Reykjavik. Previously most of these folks would have moved to capital, or to a different country. 
