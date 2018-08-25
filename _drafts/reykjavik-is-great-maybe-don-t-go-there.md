@@ -16,8 +16,10 @@ This is not to say that tourists were uncommon. Iceland Air offered the "Free St
 
 To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) the single store has been replaced by a mid-sized mall. Tour busses run non-stop, ferrying bleary passengers 50km to Reykjavik (or elsewhere, as many other Icelandic towns have started to house Reykjavik's overflow).
 
-Once the busses arrive the passengers join all of yesterday's (and the day before's, etc.) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign up for one of the dozens of tours, each customizable to your level of luxury. Wherever they end up they're most likely with other visitors. Reykjavik's population is around 200,000. Roughly 2,000,000 tourists visited it last year. Anywhere you go you're more likely to end up with tourists than with locals.
+Once the busses arrive the passengers join all of yesterday's (and the day before's, and so on) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign up for one of the dozens of tours, each customizable to your level of luxury. Wherever they end up they're most likely with other visitors. Reykjavik's population is around 200,000. Roughly 2,000,000 tourists visited it last year. Anywhere you go you're more likely to end up with tourists than with locals. About the only place we didn't hear English was at Family Park And Zoo, a 40-minute walk from the heart of the city.
 
 Somewhere, underneath all these people, was the city of Reykjavik and its residents, the reason I wanted to come back. But the tourists, by sheer number alone, push the city and its residents out of view.
 
-This change between the city I remembered and the city I found became the man topic of conversation during the tours we took during our stay. Yes, we took tours. We were tourists, after all. And we didn't want to shop.
+This change between the city I remembered and the city I found became the man topic of conversation during the tours we took during our stay. Yes, we took tours. We were tourists, after all.
+
+With a sample size of two 
