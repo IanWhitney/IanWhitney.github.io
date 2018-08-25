@@ -18,4 +18,4 @@ To handle this glut of passengers, Keflavik has tripled in size. To sell them an
 
 Once the busses arrive the passengers join all of yesterday's (and the day before's, etc.) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign up for one of the dozens of tours, each customizable to your level of luxury. Wherever they end up they're most likely with other visitors. Reykjavik's population is around 200,000. Roughly 2,000,000 tourists visited it last year. Anywhere you go you're more likely to end up with tourists than with locals.
 
-Somewhere, underneath all these people, is the actual city of Reykjavik and the actual people that live there. But the tourists, by sheer number alone, push the city out of view. It's almost like you're visiting a Potemkin village.
+Somewhere, underneath all these people, is the actual city of Reykjavik and its residents, the reason I wanted to come back. But the tourists, by sheer number alone, push the city and its residents out of view.
