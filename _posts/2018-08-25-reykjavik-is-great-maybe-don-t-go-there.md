@@ -1,7 +1,7 @@
 ---
 title: 'Reykjavik is great! Maybe don''t go there? '
 layout: post
-date: 2018-08-25 00:00:00 +0000
+date: 2018-08-25 14:07:52 -0500
 
 ---
 I've visited Reykjavik twice before, in 2001 and 2002. Those visits were in March, which is not prime tourist season and the Reykjavik I visited was mostly quiet. The air cold, the sun below the horizon most of the time, the streets and businesses populated mostly by residents. I ate a lot of skyr, hung out in tiny coffee shops, and took it easy. I liked it a lot.
