@@ -21,7 +21,6 @@ fields:
   config:
     required: true
 pages:
-- _posts/.md
 - _posts/2018-08-25-reykjavik-is-great-maybe-don-t-go-there.md
 - _posts/2018-08-14-voted.md
 - _posts/2018-08-14-funky-grits.md
