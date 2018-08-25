@@ -12,8 +12,10 @@ This is not to say that tourists were uncommon. Iceland Air offered the "Free St
 
 (note: all of these memories are hazy and may be inaccurate)
 
-15 years later and the tourism industry has not just grown, it has metastasized. We left the airport on one of two Iceland Air planes bound for Reykjavik that day (the other plane departing just 10 minutes later). And, judging by the scene at the Keflavik, many planes had departed from Iceland Air's many US destinations, each of them full-to-the-brim with travelers.
+15 years later and the tourism industry has not just grown, it has metastasized. We left the airport on one of two Iceland Air planes bound for Reykjavik that day. The second sold-out plane left just 10 minutes later. Judging by number of planes and people at Keflavik that scene had been repeated at each of Iceland Air's many US destinations.
 
-To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) 
+To handle this glut of passengers, Keflavik has tripled in size. To sell them anything-and-everything (duty free!) the single store has been replaced by a mid-sized mall. Tour busses run non-stop, ferrying bleary passengers the 50km to Reykjavik (or elsewhere, as many other Icelandic towns have started to house Reykjavik's overflow).
+
+Once the busses arrive the passengers join all of yesterday's (and the day before's, etc.) passengers in roaming the streets of Reykjavik, shopping at the seemingly endless supply of stores. Or, if shopping is not their thing, they sign 
 
  that quickly swamped the airport that had tripled in size since my last visit. 
