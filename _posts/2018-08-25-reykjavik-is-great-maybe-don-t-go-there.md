@@ -1,5 +1,5 @@
 ---
-title: 'Reykjavik is great! Maybe don''t go there? '
+title: 'Reykjavik is great! Maybe don''t go there?'
 layout: post
 date: 2018-08-25 14:07:52 -0500
 
